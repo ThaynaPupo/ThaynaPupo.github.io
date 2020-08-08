@@ -1,2 +1,2 @@
-# http://ComoSeProtegerEmComprasOnline.github.io
+# http://ThaynaPupo.github.io
 
